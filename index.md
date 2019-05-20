@@ -1,6 +1,3 @@
-## Mr. Marry Quotes
-
-Unofficial website full of Mr. Marry quotes. We all miss you.
 
 ### "You shut your mouth when you're talking to me!"
 
