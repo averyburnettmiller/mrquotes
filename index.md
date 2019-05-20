@@ -8,6 +8,7 @@
 ## [After someone said "Jesus"] "It's not Jesus' fault!"
 
 
+
 [Be the difference for AJ Marry GoFundme](https://www.gofundme.com/f/be-the-difference-for-aj-marry)
 
 [Submit Quotes](mailto:submit@mrmarryquotes.com)
